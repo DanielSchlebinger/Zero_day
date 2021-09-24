@@ -1,1 +1,1 @@
-buen día
+buena actualización
